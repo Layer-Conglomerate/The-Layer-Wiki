@@ -22,7 +22,7 @@ The Layers should be imagined as an infinitely high, infinitely growing skyscrap
 
 ## Layer 7: Augarten Eden and The Piss-Hell of Lendplatz
 
-In the week before April 20, 2024 (Layer Entry V), the conglomerate is well-prepared (with vegetable and hummus snacks, among other things) to enjoy a vivid afternoon in Augarten Eden.
+In the week before April 20, 2024 (Layer Entry V), the conglomerate is well-prepared (with vegetable sticks and hummus, among other things) to enjoy a vivid afternoon in Augarten Eden.
 After a successful first OS submission (1st place) by ****** and ***** & a successful sound engineer project presentation by **** , everyone is smiling and the mood is relaxed. However, ****** and **** get carried away by their euphoric mood and ask **** on the phone if they are disturbing them at 6️⃣ (*** hears this😬). They immediately realize that they went too far: Layer 58 (the first harbinger of piss hell)!
 
 But first, back to the paradisiacal Augarten Eden: the heavenly lantern-lit evening atmosphere is enjoyed to the fullest. ***** flies in the layers as if he were an indigenous inhabitant.
