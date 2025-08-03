@@ -39,11 +39,11 @@ Each time the door to the men's restroom opens, a strong smell of ammonia wafts 
 When **** finally enters the toilet, it becomes clear why. 
 Barely all urinals are cordoned off with tape saying “do not use, out of order.” Nevertheless, three out of the four urinals are filled with urine. The one toilet booth in the back, however, has a working flush.
 Following up: The idiotic men convince themselves that the fourth urinal is still draining instead of realizing that it most likely just hasn't overflowed yet!
-The blocked urinal continues to be used just like the three others before it. The smell of ammonia is so strong that it brings tears to his eyes.
-The definition of a hell!
+The blocked urinal continues to be used just like the three others before it. The smell of ammonia is so strong that it brings tears to the gardener's eyes.
+The definition of hell!
 Somehow, endearing male idiocy leads to the most intensely smelly place **** has ever encountered.
 
-So, in one evening, the gardener experienced both heaven in Augarten Eden and piss-hell at the Lendplatz toilet.
+So, in one evening, the gardener experienced both: heaven in Augarten Eden and the Piss-Hell at the Lendplatz toilet.
 The double-edged discovery of the hell and heaven of the Layers!
 
 ---
