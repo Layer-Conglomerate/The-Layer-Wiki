@@ -15,6 +15,7 @@ Under the right circumstances we can arrange an entry together.
 The Layers should be imagined as an infinitely high, infinitely growing skyscraper.
 
 * [Layer 7: Augarten Eden and The Piss-Hell of Lendplatz](#layer-7:-augarten-eden-and-the-piss-hell-of-lendplatz)
+* [Layer 8: The Human Factor](#layer-8:-the-human-factor)
 * [Layer 58: LOST](#layer-58:-lost)
 * [Layer 85: ****'s Medizin-Test Sprache](#layer-85:-****'s-medizin-test-sprache)
 
@@ -45,6 +46,14 @@ Somehow, endearing male idiocy leads to the most intensely smelly place **** has
 
 So, in one evening, the gardener experienced both: heaven in Augarten Eden and the Piss-Hell at the Lendplatz toilet.
 The double-edged discovery of the hell and heaven of the Layers!
+
+---
+## Layer 8: The Human Factor
+
+In informatics, specifically in computer network theory, there is its own Layer theory. These Layers have different meanings and are structured differently. However, the aforementioned OSI model shares a hidden Layer 8 with this Layer theory. **The human factor**.
+The first 7 Layers of the OSI model are very well documented in a YouTube video: https://www.youtube.com/watch?v=KHMwhjQrCmo
+
+However sometimes the problem is occurring on another Layer - the person interacting with the machine. The problem is occurring on **Layer 8**. 
 
 ---
 
