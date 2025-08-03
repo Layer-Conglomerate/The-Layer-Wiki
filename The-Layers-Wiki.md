@@ -77,4 +77,4 @@ So heißt  Layer 58 Löffelbisquit.
 59 -> Leberwurst
 
 ---
-[^1]: The liear order is in fact just a simplification. For information about the Layers beyond linear order, click here.
+[^1]: The liear order is in fact just a simplification. For information about the Layers beyond linear order, click [here](./complex-Layers/complex-Layer-Wiki.md).
