@@ -16,6 +16,7 @@ Under the right circumstances we can arrange an entry together.
 
 * [Layer 7: biblische Zahl](#layer-7:-biblische-zahl)
 * [Layer 58: LOST](#layer-58:-lost)
+* [Layer 85: ****'s Medizin-Test Sprache](#layer-85:-****'s-medizin-test-sprache)
 
 ---
 
@@ -49,5 +50,20 @@ Eine zweischneidige religiöse Layer-Entdeckung!
 ## Layer 58: LOST
 Lost = Layer 58
 
+
+---
+
+## Layer 85: ****'s Medizin-Test Sprache
+****'s Medizin-Test Sprache
+Konsonanten kriegen Ziffern zugeordnet und basiernd darauf die Zahlen 0-99 bestimmte Wörter.
+Und da die Layer auch Zahlen zugeordnet sind, kann man dadurch auch die Layer aus Perspektive von Layer 85 Namen zuordnen.
+Zusätzlich sind die Zehnerblöcke in Kategorien eingeteilt.
+Beispiele:
+50er -> essen
+5 -> L
+8 -> F
+So heißt  Layer 58 Löffelbisquit.
+
+59 -> Leberwurst
 
 ---
