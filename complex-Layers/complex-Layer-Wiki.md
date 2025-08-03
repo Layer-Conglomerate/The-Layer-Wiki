@@ -1,2 +1,2 @@
 describe complex Layers here
-![non-linear Layers](./fig/non-linear_layers.jpg)  
+![non-linear Layers](./../fig/non-linear_layers.jpg)  
