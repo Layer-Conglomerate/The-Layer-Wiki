@@ -6,44 +6,45 @@
 
 ## Introduction
 
-
-**The Layers Wiki**  is an online open access documentation. For non-participants of The Layers, this might be confusing.
-However there is always the possibility to enter the Layers. Therefore send a message to the  Layer Conglomerate on github.
-
+**The Layers Wiki** is an online, open-access documentation resource. The Layers describe an alternative way of perceiving reality. This may be confusing for non-participants of The Layers.
+However, there is always the possibility to enter the Layers. Send a message to the Layer Conglomerate on GitHub to learn more.
 Under the right circumstances we can arrange an entry together.
 
-## Contents
+## Layers
 
-* [Layer 7: biblische Zahl](#layer-7:-biblische-zahl)
+The Layers should be imagined as an infinitely high, infinitely growing skyscraper.
+
+* [Layer 7: Augarten Eden and The Piss-Hell of Lendplatz](#layer-7:-augarten-eden-and-the-piss-hell-of-lendplatz)
 * [Layer 58: LOST](#layer-58:-lost)
 * [Layer 85: ****'s Medizin-Test Sprache](#layer-85:-****'s-medizin-test-sprache)
 
 ---
 
-## Layer 7: biblische Zahl
+## Layer 7: Augarten Eden and The Piss-Hell of Lendplatz
 
-In der Woche vor dem 20.4.2024 (Layer Entry V) wird sich gut vorbereitet (unter anderem mit Gemüse+Humus-Snacks) um in den Augarten Eden zu chillen.
-Nach einer ersten erfolgreichen OS-Abgabe (Platz 1) von ****** und ***** & einer bzw. zwei erfolgreichen Toningenieur-Projekt-Präsentation von **** zeigen die Mundwinkel nach oben und das Stimmungsbild ist losgelöst. Allerdings: ****** und **** verfangen sich in ihrer euphorischen Laune und fragen **** am Telefon ob wir gerwade beim 6️⃣ stören (*** hört es mit😬). Ihnen wird sofort bewusst das ging zu weit: Layer 58 (der erste Vorbote der Piss-Hölle)!
+In the week before April 20, 2024 (Layer Entry V), the conglomerate is well-prepared (with vegetable and hummus snacks, among other things) to enjoy a vivid afternoon in Augarten Eden.
+After a successful first OS submission (1st place) by ****** and ***** & a successful sound engineer project presentation by **** , everyone is smiling and the mood is relaxed. However, ****** and **** get carried away by their euphoric mood and ask **** on the phone if they are disturbing them at 6️⃣ (*** hears this😬). They immediately realize that they went too far: Layer 58 (the first harbinger of piss hell)!
 
-Aber erstmal zurück zum paradisichen Augarten Eden: Die himmlische Laternenlicht-Abendathmosphäre wird in vollen Zügen genossen. ***** fliegt auf den Layern mit als wäre er ein Ureinwohner.
-**** ist überfordert mit dem Dilemma wie er seine Hosen umzieht (lange Hose wegen Temperatur).
-Alles ganz ypisch...
-Aber: der Gardener hat immer wieder das Gefühl als würde sein geklebter Zahn verrutschen - eigenartig.
-Nach einer geraumen Zeit wird sich mit den 19-Tonis im Lendviertel getroffen.
-Und dort kommt es zur Begegnung mit der Piss-Hölle.
-**** geht auf ein Lendplatz-Klo zu.
-Verwunderung: die fairererweise doppelte Klo-Möglichkeit für Frauen (mehr Platz → zwei Klos) zieht kaum Andrang an, während zum Männerklo eine ausgeprägte Menschenschlange führt.
-Foto A zeigt wie der erste in der Männerklo-Schlange einer schwergläubigen Frau erzählt das die Frauenklos leer sind.
-Immer wenn die Männer-Klo-Tür aufgeht schwingt einem eine strenger Ammoniak Geruch entgegen.
-Als es dann soweit ist, dass **** das Klo betritt, wird auch klar wieso. Es stinkt hier so stark nach Ammoniak, dass einem die Tränen in die Augen steigen.
-Die Pissoirs sind mit einem Sperrband "nicht benutzen, defekt" abgehängt. Trotzdem sind 3/4 Pissoirs mit Urin angefüllt. Das Kack-Klo hat allerdings eine funktionierende Spülung.
-Außerdem: Die idiotischen Männer reden sich ein beim 4. Pissoir würde es noch abfließen anstatt zu erkennen, dass es höchstwahrscheinlich einfach noch nicht von unten vollgelaufen ist.
-Es wird das abgesperrte Pissoir noch genauso weiterverwendet wie vermutlich auch die 3 anderen zuvor.
-Die absolute Hölle!
-Irgendwie liebenswerte männliche Idiotie führt zu dem heftigst stinkenden Ort den ich jemals gerochen habe.
+But first, back to the paradisiacal Augarten Eden: the heavenly lantern-lit evening atmosphere is enjoyed to the fullest. ***** flies in the layers as if he were an indigenous inhabitant.
+**** is overwhelmed by the dilemma of how to change his pants (long pants because of the temperature).
+Everything is quite typical...
 
-So habe ich an einem Abend sowohl den Himmel im Augarten Eden und die Hölle auf einer Lendplatz-Toilette erlebt.
-Eine zweischneidige religiöse Layer-Entdeckung!
+But: the Gardener keeps feeling as if his glued tooth is slipping out of place – strange.
+After quite some time, they meet up with the 19 Tonis in the Lend district.
+Here it happens: The encounter with the Piss-Hell of Lendplatz.
+**** heads for a toilet at Lendplatz.
+The double toilet option for women, which offers more space with two toilets, attracts hardly any crowds. Meanwhile, there is a long line in front of the men's restroom.
+Photo A shows the first man in line telling a skeptical woman that the women's restroom is actually empty.
+Each time the door to the men's restroom opens, a strong smell of ammonia wafts out.
+When **** finally enters the toilet, it becomes clear why. 
+Barely all urinals are cordoned off with tape saying “do not use, out of order.” Nevertheless, three out of the four urinals are filled with urine. The one toilet booth in the back, however, has a working flush.
+Following up: The idiotic men convince themselves that the fourth urinal is still draining instead of realizing that it most likely just hasn't overflowed yet!
+The blocked urinal continues to be used just like the three others before it. The smell of ammonia is so strong that it brings tears to his eyes.
+The definition of a hell!
+Somehow, endearing male idiocy leads to the most intensely smelly place **** has ever encountered.
+
+So, in one evening, the gardener experienced both heaven in Augarten Eden and piss-hell at the Lendplatz toilet.
+The double-edged discovery of the hell and heaven of the Layers!
 
 ---
 
