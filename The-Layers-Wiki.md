@@ -12,7 +12,7 @@ Under the right circumstances we can arrange an entry together.
 
 ## Layers
 
-The Layers should be imagined as an infinitely high, infinitely growing skyscraper.
+The Layers should be imagined as an infinitely high, infinitely growing skyscraper.[^1]
 
 * [Layer 7: Augarten Eden and The Piss-Hell of Lendplatz](#layer-7:-augarten-eden-and-the-piss-hell-of-lendplatz)
 * [Layer 8: The Human Factor](#layer-8:-the-human-factor)
@@ -77,3 +77,4 @@ So heißt  Layer 58 Löffelbisquit.
 59 -> Leberwurst
 
 ---
+[^1]: The liear order is in fact just a simplification. For information about the Layers beyond linear order, click here.
