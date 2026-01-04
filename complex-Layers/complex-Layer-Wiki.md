@@ -1,4 +1,4 @@
-## Layer √(-1): Layers beyond linear order
+## Layer √(-1): Layers beyond Linear Order
 ![non-linear Layers](./../fig/non-linear_layers.jpg)  
 This layer describes an expanded perspective of the layers. The layers are not only perceived as a one-dimensional, infinitely growing skyscraper. Instead, the idea is to view the layers analogously to the “multiverse” theory.
 A new layer can therefore not only be placed above or below an existing layer, but can also exist parallel to it. 
