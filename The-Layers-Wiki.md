@@ -31,6 +31,7 @@ Some examples for Layer-roles:
 * creator
 * natural scientist
 * chef
+* explorer
 * sports specialist
 * peter
 * gardener
@@ -105,19 +106,5 @@ Lost = Layer 58
 
 ---
 
-## Layer 85: ****'s Medizin-Test Sprache
-****'s Medizin-Test Sprache
-Konsonanten kriegen Ziffern zugeordnet und basiernd darauf die Zahlen 0-99 bestimmte Wörter.
-Und da die Layer auch Zahlen zugeordnet sind, kann man dadurch auch die Layer aus Perspektive von Layer 85 Namen zuordnen.
-Zusätzlich sind die Zehnerblöcke in Kategorien eingeteilt.
-Beispiele:
-50er -> essen
-5 -> L
-8 -> F
-So heißt  Layer 58 Löffelbisquit.
-
-59 -> Leberwurst
-
----
 [^1]: The linear order is in fact just a simplification. For information about the Layers beyond linear order, click [here](./complex-Layers/complex-Layer-Wiki.md).
 [^2]: [wikipedia - peter](https://en.wikipedia.org/wiki/Peter_(given_name))
