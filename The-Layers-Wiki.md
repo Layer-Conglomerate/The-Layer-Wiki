@@ -14,12 +14,28 @@ Under the right circumstances we can arrange an entry together.
 
 The Layers should be imagined as an infinitely high, infinitely growing skyscraper.[^1]
 
+* [Layer 0: The History of Origin](#layer-0:-the-history-of-origin)
 * [Layer 7: Augarten Eden and The Piss-Hell of Lendplatz](#layer-7:-augarten-eden-and-the-piss-hell-of-lendplatz)
 * [Layer 8: The Human Factor](#layer-8:-the-human-factor)
 * [Layer 58: LOST](#layer-58:-lost)
 * [Layer 85: ****'s Medizin-Test Sprache](#layer-85:-****'s-medizin-test-sprache)
 
 ---
+
+
+## Layer 0: The History of Origin
+
+Layer 0 encapsulates the history of the origin of the Layers. It takes place in Zürich on the campus of the ETH - the motherland of Layers. On the day of origin, the creator discovered Layer 1 and Layer 1.1, thereby establishing the concept that is now accepted as consensus within the Layer community. Layer 0 also encompasses the Layer-roles of individuals and how they interact within those roles.
+Some examples for Layer-roles:
+* creator
+* natural scientist
+* chef
+* sports specialist
+* peter
+* gardener
+* jukebox
+* architect
+
 
 ## Layer 7: Augarten Eden and The Piss-Hell of Lendplatz
 
