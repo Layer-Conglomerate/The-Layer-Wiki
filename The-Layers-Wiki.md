@@ -15,6 +15,7 @@ Under the right circumstances we can arrange an entry together.
 The Layers should be imagined as an infinitely high, infinitely growing skyscraper.[^1]
 
 * [Layer 0: The History of Origin](#layer-0:-the-history-of-origin)
+* [Layer 6: Peter](#layer-6:-peter)
 * [Layer 7: Augarten Eden and The Piss-Hell of Lendplatz](#layer-7:-augarten-eden-and-the-piss-hell-of-lendplatz)
 * [Layer 8: The Human Factor](#layer-8:-the-human-factor)
 * [Layer 58: LOST](#layer-58:-lost)
@@ -36,6 +37,21 @@ Some examples for Layer-roles:
 * jukebox
 * architect
 
+## Layer 6: Peter
+
+"Peter is a common masculine given name. It is derived directly from Greek Πέτρος, Petros (an invented, masculine form of Greek petra, the word for "rock" or "stone"), which itself was a translation of Aramaic Kefa ("stone, rock")[...]." [^2] <br>
+The name peter goes back to the Petertime (also called stone age). At these times everybody was a Peter (see: [evidence](https://www.youtube.com/watch?si=gvMxdNVg4kW2Jk9w&v=QQVV1nOMFYk&feature=youtu.be)). But even though the origin of 'Peter' is deep, the question of why it is so widespread and anchored in human culture nowadays is of interest. <br>
+Some examples for the spread of Peter:
+* Miesepeter
+* Lügenpeter
+* Schwarzer Peter
+* Struwelpeter
+* Helge Schneider's regular use of the name
+* Taylor Swift's song peter
+* the authors of the "Steinbock-Sternzeichen" book
+* ... 
+<!-- end of the list -->
+Some say that the reason for the Peter divulgation is connected to the mistery of the stonehenge. Others claim that everybody has a stone buried deep in one's soul. This stone would cause an intrinsic need for Peter.
 
 ## Layer 7: Augarten Eden and The Piss-Hell of Lendplatz
 
@@ -94,3 +110,4 @@ So heißt  Layer 58 Löffelbisquit.
 
 ---
 [^1]: The linear order is in fact just a simplification. For information about the Layers beyond linear order, click [here](./complex-Layers/complex-Layer-Wiki.md).
+[^2]: [wikipedia - peter](https://en.wikipedia.org/wiki/Peter_(given_name))
