@@ -36,6 +36,16 @@ Some examples for Layer-roles:
 * gardener
 * jukebox
 * architect
+* ...
+
+  
+## Layer 1: The Orbits of Joy
+Layer 1 describes the concept of viewing planetary orbits around an imaginary mass at the centre of a group of friends passing around weed and snacks. However as the creator noticed Layer 1 is split up in infinite Layers. Different physical laws apply in each layer. So in Layer 1.0 the orbits are in the same direction whereas on Layer 1.1 the orbits are in different direction leading to planetery alignments twice a year.
+### Layer 1.0
+![Layer 1.0](./fig/Layer_1_0.JPG)  
+
+### Layer 1.1
+![Layer 1.0](./fig/Layer_1_1.JPG)  
 
 ## Layer 6: Peter
 
